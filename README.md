@@ -1,7 +1,7 @@
 ### Hi there 👋
 Student from Russia. 
   
-💻Python, a bit of Java (Android) and C++.  
+💻Python, Java, a bit of C++.  
 🗣️Speaking Russian (native), English (about B1)  
   
 Contact me:  
