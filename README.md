@@ -6,4 +6,4 @@ Student from Russia.
   
 Contact me:  
 🌐Telegram [@a352642](https://t.me/a352642) (answer waiting time: 10s-2h)  
-📧E-mail: [\_kingley\_](https://discord.com/users/445919855972057095) (answer waiting time: 1w-4w)
+🎮Discord: [\_kingley\_](https://discord.com/users/445919855972057095) (answer waiting time: 1w-4w)
